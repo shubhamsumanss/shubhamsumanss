@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @shubhamsumanss
 - 👀 I’m interested in cad designing.
-- 🌱 I’m currently learning ...
 - 📫 How to reach me mail me on shubhamsuman2110@gmail.com
 
 
